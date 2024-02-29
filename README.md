@@ -1,2 +1,0 @@
-# Atividade3B
-Biografia
